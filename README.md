@@ -1,3 +1,3 @@
-new1game.github.io
+adams686.github.io
 
-Yoyes Technology Co., Ltd.
+Adams Technology Co., Ltd.
